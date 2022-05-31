@@ -1,1 +1,1 @@
-![[~Pasted image 20220518123042.png]]
+[[~/Pasted image 20220518123042.png]]
